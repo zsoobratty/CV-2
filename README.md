@@ -30,9 +30,16 @@ Here are some of the projects I've created on my journey to becoming a software 
 
 ## <a name="Skills">Skills</a>
 
-#### Leading
+#### Leadership
 
-As a client servicing consultant at Aviva, I was regularly entrusted to organise and lead meetings with the most lucrative clients we had, in order rekindle the relationship with the client, and work with them to improve service levels. Due to this, we were able to maintain a solid relationship with them, and ensure that our reputation as an insurer remained at the highest level. These contributed to obtaining a further investment of £600m from the client.
+As a client servicing consultant at Aviva, I was regularly entrusted to organise and lead meetings with the most lucrative clients we had, in order rekindle the relationship with the client, and work with them to improve service levels. Due to this, we were able to maintain a solid relationship with them, and ensure that our reputation as an insurer remained at the highest level. This contributed to obtaining a further investment of £600m from the client.
+
+#### Learning
+Being able to learn fast has been the one of the main reasons why I have excelled in all my roles.  
+Makers Academy was a perfect way to put fast learning skills into practice. Within 4 months I was able to learn core principals of software development, and more importantly, the skills to be able to further my learning in the software development world. 
+
+#### Dedication
+I joined Aviva with no knowledge of pensions. However, I pride myself on being a stand out performer in all of my career. Therefore, in order to maintain that standard, I took the time to research and learn the skills needed to take on any task given to me. Due to this, within the first 2 weeks of work, I was entrusted to be responsible for the largest and most complex client. 
 
 ## <a name="Education">Education</a>  
 
