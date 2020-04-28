@@ -78,9 +78,8 @@ I joined Aviva with no knowledge of pensions. However, I pride myself on being a
 ## <a name="Interests">Interests</a>
 
 #### Cooking 
-
-Recreating meals that I've had at restaurants is a huge hobby of mine. From making the Wagamama Katsu Curry, to replicating the famous Big Mac.  
-The possibilities are endless!
+Cooking is one of my favourite things to do. From making recipes created by incredible chefs all around the world, to experimenting with different flavours and creating my own recipes. 
+Recreating meals that I've had at restaurants is also a hobby of mine. A personal fravourite of mine was recreating and, in my opinion, improving the famous Big Mac.
 
 #### Piano  
 So I was playing a game called Final Fantasy X, and on comes a tune, played on the piano, by the name of 'To Zanarkand'. Inspired by it, I went and bought myself a piano with the sole purpose of playing that song.  
