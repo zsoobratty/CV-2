@@ -82,8 +82,7 @@ I joined Aviva with no knowledge of pensions. However, I pride myself on being a
 Recreating meals that I've had at restaurants is a huge hobby of mine. From making the Wagamama Katsu Curry, to replicating the famous Big Mac.  
 The possibilities are endless!
 
-#### Piano
-
-So I was playing a game called Final Fantasy X, and on comes a nice tune called 'To Zanarkand', played on the piano. Inspired by it, I went and bought myself a piano with the sole purpose of playing that song.  
+#### Piano  
+So I was playing a game called Final Fantasy X, and on comes a tune, played on the piano, by the name of 'To Zanarkand'. Inspired by it, I went and bought myself a piano with the sole purpose of playing that song.  
 With sheer determination, and a significant amount of YouTube videos, I was able to do it!  
-Next on the list to learn: Nuvole Bianche, by Ludovico Einaudi.
+Next on the to do list: Nuvole Bianche, by Ludovico Einaudi.
